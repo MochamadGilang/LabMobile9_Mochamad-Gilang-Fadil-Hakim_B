@@ -1,4 +1,4 @@
-## Tampilan Home
+## TAMPILAN AWAL
 ![WhatsApp Image 2024-11-11 at 22 56 05_2d1f3f64](https://github.com/user-attachments/assets/e49eb5ba-3458-4ede-8ccb-bdabc1347b46)
 
 ## CREATE
