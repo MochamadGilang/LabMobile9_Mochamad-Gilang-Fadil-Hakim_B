@@ -9,5 +9,6 @@
 ![WhatsApp Image 2024-11-12 at 17 42 23_9e32c327](https://github.com/user-attachments/assets/59382b49-cbb5-4198-9020-993e085a64a9)
 
 # DELETE
-![WhatsApp Image 2024-11-12 at 18 30 15_64a407d4](https://github.com/user-attachments/assets/71561902-033d-434f-b076-2e4fa47b4f84)
+![WhatsApp Image 2024-11-12 at 17 58 01_d7124d80](https://github.com/user-attachments/assets/ebcfd69a-ecfb-4100-88f0-f644bc32a226)
+
 
